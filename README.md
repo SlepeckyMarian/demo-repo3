@@ -12,4 +12,4 @@ more and more
 
 4 trying  again
 
-damn whats up
+WHATS UP MY FRIEND
